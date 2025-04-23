@@ -1,0 +1,1 @@
+有一些关于v0的AI副总裁Jared Palmer声称系统提示是幻觉的指控。我可以确保它不是幻觉，而且他在撒谎：https://x.com/viarnes/status/1898078086798901329?s=46 
